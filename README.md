@@ -5,6 +5,6 @@
 
 ✅ جهت ورود به سایت بازی انفجار : [بازی انفجار](https://enfejar.pw/)
 
-✅ خرید vpn ایتا پیام ارسال کنید: https://eitaa.com/filter1one
+✅ جهت دانلود بازی انفجار : [دانلود بازی انفجار](https://enfejar.pw/download-the-blast-game/)
 
-✅ خرید vpn روبیکا پیام ارسال کنید: https://rubika.ir/filter1onea
+✅ جهت دانلود ربات بازی انفجار :  [ربات بازی انفجار](https://enfejar.pw/robot-blast-game/)
